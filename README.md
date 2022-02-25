@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Lenorux
+- 👀 I’m interested in ... Some coding stuff looks cool and is pretty hard as well >.>
+- 🌱 I’m currently learning ... Some code so i can use it for After effects 
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ... idk man 
